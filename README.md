@@ -1,1 +1,1 @@
-# mine
+Sometimes expensive doesn't mean quality, and fashionable isn't always what’s stylish for me. When choosing clothes, and especially lingerie, I try to focus primarily on my own tastes, preferences, and feelings. Mass-market brands increasingly disappoint me, making me prefer more niche and luxury brands like [Zhilyova accessories](https://zhilyova.com	) and lingerie for women. If before I thought it was too expensive for me, now I understand that I am definitely worth it.
